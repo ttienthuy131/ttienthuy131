@@ -1,1 +1,4 @@
-## Lecturer & Researcher | Climate finance, Asset pricing | Turning data into actionable insights🏦
+📜 Finance Researcher | Climate Finance & Asset Pricing  
+⚡ Life-long learner, exploring complex financial data  
+🌱 Passionate about data, NLP, and econometrics  
+👯 Open to collaboration on research and data projects
